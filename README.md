@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning to live efficiently
 - 👯 I’m looking to collaborate on some intresting projects
 <!-- - 🤔 I’m looking for help with  -->
-- 💬 About me #gamer #youtuber #developer #ex_owner
+- 💬 About me #gamer #youtuber #developer #ex_entrepreneur
 - 📫 How to reach me: khardekarbhushan10@gmail.com
 
 <!--
